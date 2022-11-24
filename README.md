@@ -1,0 +1,1 @@
+# Is-zekasi-ve-verimadenciligi-calismasi
